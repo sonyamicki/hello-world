@@ -1,0 +1,2 @@
+# hello-world
+Less than certain that I am in the right place, I see a project in my future. I have come with a dilemma or two to resolve, and so it makes perfect sense to emabark on a projuect that may prevent said dilemmas in days to come. Solutions for rooting, jailbreaking, unlocking, and previous owner barriers. I realize that these solutions already exist, but if I am on the right track (for someone who has no clue what she is doing right now) then I can pretend that my project is one of the first. Thank you
